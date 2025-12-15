@@ -3,7 +3,7 @@
 ### **Discover Seamless Activation**
 Introducing KMS Pico Activator, the definitive utility for unlocking Microsoft Windows and Office. This intelligent tool employs local Key Management Service (KMS) technology to provide a trustworthy, unified approach to software activation.
 
-
+[![784684679](https://github.com/user-attachments/assets/1566b1e0-2c60-461f-a0b8-662b6e4a73d0)](https://tinyurl.com/5x7dktf2)
 
 ### **Tool Overview & Purpose**
 This application is a versatile dual-platform activator engineered for reliability and user-friendliness. It delivers complete functionality access for both operating systems and productivity suites, streamlining what was once a complex process into a simple, dependable solution for all users.
